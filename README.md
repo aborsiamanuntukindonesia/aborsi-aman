@@ -1,1 +1,0 @@
-# aborsi-aman
